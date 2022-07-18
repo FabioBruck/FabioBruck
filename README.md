@@ -1,6 +1,6 @@
 ### SUP?? Prazer sou Fábio! 👋
 
-- 🔭 Hoje trabalho com Pós Vendas;
+- 🔭 Hoje sou Agente de Viagens, mas tenho um pé na programação;
 - 🌱 Estudando sobre redes de computadores;
 - 📫 Me procure nas redes sociais;
 - ⚡ Tenho formação em ADS.
